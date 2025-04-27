@@ -1,5 +1,7 @@
 # 🎲 **Love Bets: Swipe Right, Place Your Bets, and Watch Love Unfold!** 💘
 
+*Submission for Hack&Roll 2025. Winner of Most Entertaining Hack!*
+
 ## 🌟 **Tagline**  
 _"What if society’s bets on your relationship could reveal how compatible you really are?"_
 
